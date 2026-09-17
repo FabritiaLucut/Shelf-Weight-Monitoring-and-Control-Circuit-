@@ -1,1 +1,1 @@
-# Shelf-Weight-Monitoring-and-Control-Circuit-
+[CIRCUIT PENTRU CONTROLUL GREUTAȚII.pdf](https://github.com/user-attachments/files/32345299/CIRCUIT.PENTRU.CONTROLUL.GREUTA.II.pdf)
